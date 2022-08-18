@@ -14,5 +14,5 @@
 
 😄 Please feel free reaching out to me at any time! Here's my email address: ruiyangliu.jobs@gmail.com
 
-⚡ Fun fact: I'm a cat person! I'm raising three cats, and two of them are 2 years old, and another is only three month!
+⚡ Fun fact: I'm a cat person! I'm raising three cats, and two of them are 2 years old, and another is only three months!
 
